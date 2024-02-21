@@ -2,7 +2,7 @@
 - 👀 I’m interested in HTML CSS JAVASCRIPT
 - 🌱 I’m currently learning JAVASCRIPT
 - 💞️ I’m looking to collaborate on AI and FULLSTACK
-- 📫 How to reach me jesutobiloba13@gmail.com
+- 📫 How to reach me 09015913829
 - 😄 Pronouns: Tstar179
 - ⚡ Fun fact: Researcher
 
